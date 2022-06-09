@@ -1,0 +1,2 @@
+# Euhrecant
+Odeio todo mundo.
